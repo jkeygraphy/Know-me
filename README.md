@@ -19,4 +19,25 @@ Dislikes !!:
 ⭑.ᐟPhysical contact without asking first
 ⭑.ᐟInappropriate arguments or jokes
 
+![image alt](https://github.com/jkeygraphy/Know-me/blob/20570b88788560ff2b33f04673d4e524362c3be4/ivantill%20(1).jpg)
 
+Fandoms 𖾕𖾝꙼ᩚ𛲕𖾟
+<𝟑 .ᐟ VNC
+<𝟑 .ᐟ Alien stage
+<𝟑 .ᐟ KNY
+<𝟑 .ᐟ Backrooms
+<𝟑 .ᐟ Honkai / Genshin
+<𝟑 .ᐟ Bl series
+<𝟑 .ᐟ Epic / Hamilton
+<𝟑 .ᐟ TFC , error143
+and many others
+
+Music !!
+.✦ ݁˖ Enhypen
+.✦ ݁˖ CORTIS
+.✦ ݁˖ Chase atlantic
+.✦ ݁˖ BTS
+.✦ ݁˖ Pretty Havoc
+.✦ ݁˖ Voilá
+.✦ ݁˖ MICO
+.✦ ݁˖ Ducht Melrose
